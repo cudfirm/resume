@@ -1,3 +1,1 @@
-## 📄 My Résumé
-
-[Click here to view/download my résumé (PDF)](resume.pdf)
+[Click here to view/download my résumé (PDF)](David%20Utibe%20Charles%20(RESUME).pdf)
